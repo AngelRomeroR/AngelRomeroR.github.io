@@ -20,3 +20,9 @@ Letzte Filmen:
 * 2018 Incredibles 2
 * 2017 Killer’s Bodyguard
 * 2017 Kong: Skull Island
+
+## Zitat
+
+Samuel L.Jackson sagte:
+> Ich hoffe Obama wird richtig angsteinflößend in den nächsten 4 Jahren, er braucht sich ja keine Sorgen mehr darum zu machen, wieder gewählt zu werden.
+I hope Obama gets scary in the next four years, 'cuz he ain't gotta worry about getting re-elected. 
