@@ -27,4 +27,5 @@ Samuel L.Jackson sagte:
 > Ich hoffe Obama wird richtig angsteinflößend in den nächsten 4 Jahren, er braucht sich ja keine Sorgen mehr darum zu machen, wieder gewählt zu werden.
 I hope Obama gets scary in the next four years, 'cuz he ain't gotta worry about getting re-elected. 
 
+## Bild
 <img src="https://cdn.antenne.de/thumbs/images/galleries/417501/115050_pulp_fiction_mit_samuel_l_jackson_miramax.011c6919.jpg">
