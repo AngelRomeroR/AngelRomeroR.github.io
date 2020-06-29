@@ -7,4 +7,3 @@ Detective Ezekiel "Zeke" Banks (Chris Rock) und sein noch unerfahrener Partner (
 eine Anzahl abscheulicher Morde, die auf unheimliche Weise an die grausame Vergangenheit der Stadt erinnern. 
 Ohne es zu ahnen, wird Zeke immer tiefer in das mörderische Geheimnis hineingezogen und 
 findet sich plötzlich im Zentrum des morbiden Spiels eines bestialischen Killers wieder. 
-Der neunte Teil der Horrorfilm-Saga erscheint am 15. Mai 2020 in den Kinos.
